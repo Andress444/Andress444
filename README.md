@@ -3,6 +3,7 @@
  > e estou cursando o Ensino Medio.
  > Ultilizo esse espaço para minha organização e compartilhamentos dos meus projetos.
 
- ### você pode entrar em contanto comigo: 🐈‍⬛
+ ### você pode entrar em contanto comigo🐈‍⬛
  00001105055139sp@al.educacao.sp.gov.br
 
+ ![](https://tenor.com/pt-BR/view/pixel-hello-kitty-kawaii-cute-gif-25666255)
